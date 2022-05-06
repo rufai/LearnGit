@@ -1,3 +1,4 @@
 Fashola
 Tinubu
-Sanowlu
+Sanwo-olu
+Jakande
